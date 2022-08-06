@@ -1,3 +1,3 @@
 # Data.analyst
-## Trails nd other stuff(;
+## Trails and other stuff(;
 #### Hopefully fruitful efforts are done here
